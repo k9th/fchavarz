@@ -1,16 +1,14 @@
-# 💻 Osouro Akimonero
+# 💻 Lyca B.
 
-Hey there! I'm Osouro — a passionate student, part-time seller, photographer, and gamer from the Philippines 🇵🇭.  
-Currently studying at **Holy Angel University** and planning to move to **Scotland** for college! 🎓
+Hey there! I'm Lyca. I'm a passionate student, part-time seller,and photographer.
 
 ---
 
 ## 📌 About Me
 
 - 💼 Part-time seller & student  
-- 🎮 Gamer | 📸 Photography lover  
-- 💬 Fluent in Filipino and English, learning a bit of Japanese  
-- ✨ Visual Kei style + Music: The GazettE, Linkin Park, JILUKA  
+- 📸 Photography lover  
+- 💬 Fluent in Filipino and English, learning a bit of Japanese   
 - 🧬 Half-Filipino, half-Japanese
 
 ---
